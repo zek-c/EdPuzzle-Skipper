@@ -36,4 +36,3 @@ Simply go to any EdPuzzle assignment, a link like this (https://edpuzzle.com/ass
 
 Please star if you enjoy it :)
 
-ඞ sussy balls
